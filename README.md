@@ -15,7 +15,7 @@ La réussite de cette **Version 1** repose sur deux piliers :
 
 ## 🎥 Démonstration Vidéo
 *Découvrez en 2 minutes comment Jolie Fée Market transforme la gestion quotidienne :*
-https://drive.google.com/file/d/1dqG9CQjZBO2YxuBn3g5LFDPUgCrZcrYS/view?usp=drive_link
+https://drive.google.com/file/d/1dqG9CQjZBO2YxuBn3g5LFDPUgCrZcrYS/view?usp=sharing
 
 ## 🚀 Ce que Jolie Fée Market fait pour vous :
 
